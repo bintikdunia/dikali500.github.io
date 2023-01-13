@@ -90,7 +90,7 @@
  <div class="links">
     <ul>  
       <li>
-      <a rel="nofollow sponsored" href="https://beacons.ai/kakekgacor2023">
+      <a rel="nofollow sponsored" href="https://beacons.ai/kitatoriyo">
       <img src="https://kakekgacor2023.github.io/GIF%20ADS%20628%20x%201200%20Original%20(3).gif" class="img-r">
       </a>
       </li>
